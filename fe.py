@@ -1,0 +1,1 @@
+özellik çıkarımı
